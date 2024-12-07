@@ -10,17 +10,14 @@ I have a dream to become a white hat hacker)
 
 ## my social networks:
 
-• [Telegram](https://t.me/have_rely_on_me)
-• [discord](https://discord.com/invite/gCARbKZz)
-• [GitHub](https://GitHub.com/haverelyonme)
-•
+• [Telegram](https://t.me/yooohoooooh) • [GitHub](https://GitHub.com/haverelyonme) •
 
 #### my country: Russia (RU)
 #### my language: RU, EN
 
 ### DONAT
 
-BITCOIN: bc1qku8xnjw5e7pqtus32va9mjamuhywlh4fl3hax9
+BITCOIN: bc1qt2dmrzs76uwkukchxcr3ersejm2n4f5c7p88u5
 
 
-#### my Telegram channel: https://t.me/+JS0ouV8pZ300N2Y6
+#### my Telegram channel: https://t.me/+utaTZ57T76owMDQy
